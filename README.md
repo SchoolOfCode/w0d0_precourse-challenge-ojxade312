@@ -9,4 +9,4 @@ I learnt a lot about using differnet applications like git and learning more abo
 
 Furthermore, I learnt a lot about how I can best learn all of this new infromation, I have found watching tutorials has aided in better retention.
 
-Upon reflection, I have been able to acknowledge the deiffciluty in acquiring this new schoo, but I also have noticed my own motivation and insiration to keep coming back even if it is difficult.
+Upon reflection, I have been able to acknowledge the diffciluty in acquiring these new skills, but I also have noticed my own motivation and inspiration to keep coming back even if it maybe difficult.
